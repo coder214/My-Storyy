@@ -1,1 +1,1 @@
-There once lived a hare who was very fast. He boasts about himself.
+There once lived a hare who was very fast. He boasts about himself.And there was a tortoise too who were very slow.
