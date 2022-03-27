@@ -1,0 +1,1 @@
+There once lived a hare who was very fast. He boasts about himself.
